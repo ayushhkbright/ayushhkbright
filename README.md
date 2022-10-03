@@ -1,6 +1,6 @@
 
 ## 🚀 About Me
-I'm a Ayush Jain Devops Engineer ☁️ working in Bright Life Care Pvt. Ltd....
+I'm a Ayush Jain working as a Devops Engineer ☁️ working in Bright Life Care Pvt. Ltd....
 
 
 ## 🛠 Skills
